@@ -1,2 +1,2 @@
 # github1
-I am a computer science student at ucsd (senior).
+I like to play soccer and also play soccer vedio games.
